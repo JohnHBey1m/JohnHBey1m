@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @JohnHBey1m
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning about linquistics.
+- 👀 I’m interested in ...- 🌱 I’m currently learning about linquistics.
+  
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me beyjohn@hotmail.com
 - 
